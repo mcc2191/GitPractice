@@ -10,3 +10,9 @@ CDC. *Built Neighborhood and Health*
 
 **Week 3**
 CDC. *Public Health Surveillance*
+
+**Week 4**
+Readings on *Climate Change*
+
+**Week 5**
+Group activities
