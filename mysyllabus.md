@@ -16,3 +16,9 @@ Readings on *Climate Change*
 
 **Week 5**
 Group activities
+
+**Week 6**
+Group Debate
+
+**Week 7**
+Reflection
